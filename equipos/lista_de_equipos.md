@@ -1,13 +1,13 @@
 # Lista de equipos:
 
 ## Equipo 1
-- Nombre A
+- Martha Rodriguez
 ...
 ...
 - Salvador Vazquez
 
 ## Equipo 2
-- Nombre A
+- Brenda Leyva Amaya
 ...
 ...
 - Nombre B
