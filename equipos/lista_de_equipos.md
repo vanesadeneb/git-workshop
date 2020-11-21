@@ -13,7 +13,7 @@
 - Nombre B
 
 ## Equipo 3
-- Nombre A
+- Vanesa Deneb
 ...
 ...
 - Nombre B
