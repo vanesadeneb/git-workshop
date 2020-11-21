@@ -4,7 +4,7 @@
 - Nombre A
 ...
 ...
-- Nombre B
+- Salvador Vazquez
 
 ## Equipo 2
 - Nombre A
