@@ -1,7 +1,7 @@
 # Lista de equipos:
 
 ## Equipo 1
-- Nombre A
+- Martha Rodriguez
 ...
 ...
 - Nombre B
