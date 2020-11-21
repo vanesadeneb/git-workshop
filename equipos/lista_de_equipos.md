@@ -7,7 +7,7 @@
 - Nombre B
 
 ## Equipo 2
-- Nombre A
+- Brenda Leyva Amaya
 ...
 ...
 - Nombre B
