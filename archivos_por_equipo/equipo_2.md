@@ -1,0 +1,13 @@
+# Equipo 2
+
+The Russian Imperial Romanov family (Emperor Nicholas II, his wife Empress Alexandra and their five children: Olga, Tatiana, Maria, Anastasia, and Alexei) were shot and bayoneted to death by Communist revolutionaries under Yakov Yurovsky in Yekaterinburg on the night of 16–17 July 1918. Also killed that night were retainers who had accompanied them: notably Eugene Botkin, Anna Demidova, Alexei Trupp and Ivan Kharitonov. The bodies were taken to the Koptyaki forest, where they were stripped and mutilated.
+
+In 1919 the White Army commissioned an investigation but were unable to find the unmarked gravesite. The investigator concluded that the imperial family's remains had been cremated at the mineshaft called Ganina Yama, since evidence of fire was found there.
+
+In 1979 and 2007, the remains of the bodies were found in two unmarked graves in a field called Porosenkov Log. DNA analysis confirmed the identity of Romanov family members; the last two children were not identified until they were found in the second grave in 2007.
+
+According to the official state version of the USSR, former Tsar Nicholas Romanov, along with members of his family and retinue, was executed by firing squad, by order of the Ural Regional Soviet, due to the threat of the city being occupied by Whites (Czechoslovak Legion). Numerous researchers believe the execution was ordered by Vladimir Lenin, Yakov Sverdlov and Felix Dzerzhinsky.
+
+Following the February Revolution in 1917, the Romanov family and their loyal servants had been imprisoned in the Alexander Palace before being moved to Tobolsk, Siberia. They were next moved to a house in Yekaterinburg, near the Ural Mountains. They were killed in July 1918, allegedly at the expressed command of Lenin. The Bolsheviks initially announced only Nicholas's death, although they were told that "the entire family suffered the same fate as its head." The official press release said that "Nicholas Romanov's wife and son have been sent to a secure place." For over eight years, the Soviet leadership maintained a systematic web of disinformation as to the fate of the family, from claiming in September 1919 that they were murdered by left-wing revolutionaries to denying outright in April 1922 that they were dead.
+
+The Soviets finally acknowledged the murders in 1926, following the publication in France of a 1919 investigation by a White émigré, but said that the bodies were destroyed and that Lenin's Cabinet was not responsible. The Soviet cover-up of the murders fuelled rumours of survivors. Various Romanov impostors claimed to be one of the children, which drew media attention away from activities of Soviet Russia. From 1938, Joseph Stalin suppressed any discussion regarding the fate of the family.
