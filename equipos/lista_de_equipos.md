@@ -16,7 +16,7 @@
 - Nombre A
 ...
 ...
-- Nombre B
+- Ana Barrios
 
 ## Equipo 4
 - Nombre A
